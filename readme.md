@@ -1,0 +1,3 @@
+recipe name: *Sandwitcheto*
+
+Sandwitcheto is a recipe of a delicious veg double layered sandwitch.  The main ingredient of this recipe is " Dr.Oetkars FunFoods Veg Mayonnaise ".This dish is a healthy & tasty breakfast for children or adults as it contains vegies.  It can be carried anywhere like in school lunch box , any trip , in office etc. Overall it's a perfect dish as per me. And i suggest that every one should try making and eating this delicious sandwich. And it's also not so expensive.
